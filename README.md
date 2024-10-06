@@ -2,7 +2,7 @@
 - 👀 I’m interested in web devlopment
 - 🌱 I’m currently learning html
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 8830300881
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
